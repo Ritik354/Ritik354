@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **ritikpawar354@gmail.com**
 
-- ⚡ Fun fact **I drink more chai than coffee ☕**
+- ⚡ Fun fact **I drink more water than coffee ☕**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
